@@ -11,6 +11,6 @@
 
 
 ## 📫 Contact
-- Email: andre.hangalo@example.com  
+- Email: estudenteliezer@gmail.com 
 
 > MY goal is study in MIT, UCLA, Stanford, Caltech or Harvard.
